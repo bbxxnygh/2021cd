@@ -46,5 +46,24 @@ John Lipsky，彼得 G·彼得森傑出學者，基辛格全球事務中心
 ⸻世界秩序是否會有顛覆性新變化
 * 在線互動解答網友提問
 
-![GitHub Logo](/images/logo.png)
-![Don Tse](https://mp4.w6.xeghf.xyz/hp693b2f9a9a28599e836cbd1f7564a44a0aaf3769ocAPQ.cSEkr.cAa/!me!37!6Q!mB!6o!6l/!m6!lP!lp!ml!QX!ly!me!3l!QS!mB!63!3S/sPso!sPcvNJccr!sPp3!sPQS.jpg)
+# 主講人
+# DON TSE
+## 透視中國首席研究員
+![Don Tse](https://user-images.githubusercontent.com/75584472/102027098-24962180-3df6-11eb-9ab8-b09a9bcf10f6.jpg)
+
+
+# 如何付費
+## 2020年12月18日北京時間12點前
+50銀幣（U$50美元）
+
+## 2020年12月18日北京時間12點後
+60銀幣（U$60美元）
+
+* 所有付費觀看直播演講會員將獲得透視中國 **$50美元折扣碼** ，用作訂購透視中國產品（如：《2021年中國展望報告》等），**有效期至2021年1月31日**。
+
+## 如何付費預訂直播節目
+1.  先[充值](https://chinadecoding.com/shop/)
+1. 充值後點此[鏈接](https://chinadecoding.com/2020/11/06/2021-china-outlook/)付費預訂直播節目
+1. 請保存直播鏈接或查收直播提醒郵件
+1. 付費後可以在直播頁面留下您的問題
+1. 請**提前15分鐘**登錄直播節目
